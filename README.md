@@ -33,4 +33,6 @@ System Administrator with 4 years of hands-on experience in **Linux Infrastructu
 ---
 
 ### 📫 Connect With Me
-* **Location:** Chennai, India
+**Phone:** +91-9345064061
+**Email:** sakthi.cloud05@gmail.com 
+**Location:** Chennai, India
